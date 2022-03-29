@@ -1,3 +1,5 @@
 # 我的学术主页
 
-**My howepage:** http://zhouxiuze.com/
+**From howepage:** http://zhouxiuze.com/
+
+https://snailwish.com/368/
